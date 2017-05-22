@@ -1,0 +1,1 @@
+# shushakov_psychotype_recignition
